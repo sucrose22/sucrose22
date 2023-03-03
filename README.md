@@ -1,4 +1,4 @@
-<img align="right" src="https://count.getloli.com/get/@:Minori-ty?theme=rule34">
+<img align="right" src="https://count.getloli.com/get/@:sucrose22?theme=rule34">
 
 ## 蔗糖餹
 
