@@ -1,6 +1,6 @@
 <img align="right" src="https://count.getloli.com/get/@:sucrose22?theme=rule34">
 
-## 蔗糖餹
+## Sucrose
 
 兴趣使然二次元。
 
